@@ -56,7 +56,7 @@ I'm constantly exploring new technologies to expand my skill set and deliver inn
 ## 📫 Contact Me
 
 - **Email**: sergiorc200030@gmail.com
-- **LinkedIn**:in/sergio-r%C3%ADos-campos-41939329b
+- **LinkedIn**: in/sergio-r%C3%ADos-campos-41939329b
 
 ---
 
